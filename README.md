@@ -1,2 +1,2 @@
 # Hair-Growth
-Ad: [Sign in Adtest VID223 1 Keshav Youtube 16 9 Hook 3 ](https://youtu.be/tB5XuXOs3yw) - Lander: 
+Ad: [Sign in Adtest VID223 1 Keshav Youtube 16 9 Hook 3 ](https://youtu.be/tB5XuXOs3yw) - Lander: https://shop.try-spartan.com/quiz-go?gc_id=22538213501&h_ga_id=178678674865&h_ad_id=751352349347&h_keyword_id=&h_keyword=&h_placement=&gad_source=2&gclid=EAIaIQobChMIn6COj7mEjgMVVxQ1Ax15pyowEAEYASAAEgILdPD_BwE&cc_custom_gclid=EAIaIQobChMIn6COj7mEjgMVVxQ1Ax15pyowEAEYASAAEgILdPD_BwE&cc_redirected=1
